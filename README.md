@@ -1,4 +1,4 @@
-# blacksocks
+# Blacksocks
 
 Blacksocks Gay,Whitesocks Gay,Gay AI Art & More
 
